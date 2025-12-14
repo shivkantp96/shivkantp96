@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Shivkant Panchal
-**A passionate Business Analyst||**
+**A passionate Business Analyst**
 
 Email Me 👉 ✉️ **shivkantpanchal96@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
